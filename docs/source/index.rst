@@ -1,4 +1,4 @@
-Contact Canon U.S.A., Inc. | Canon Support | Full Guide 2025
+Contact Canon U.S.A., Inc. | Canon Support | Full Guide
 ============================================================
 
 Canon provides customer assistance through its official Canon Printer Helpline Number: **+1-801-878-6858 (USA)** or Canon Customer Service Number: **+1-801-878-6858 (USA)**. If you're facing issues with your Canon printer, need help with installation, or want expert guidance, reach out to the Canon support team via:
